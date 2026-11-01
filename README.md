@@ -1,2 +1,2 @@
 # Arsh-s-Ai-Solutions-Agency
-To help for businessman's
+Automate Your Business. Grow Faster. Production-grade AI automation, lead generation, appointment booking, customer support, and bespoke workflow systems for modern businesses.
